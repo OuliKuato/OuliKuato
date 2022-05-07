@@ -1,0 +1,7 @@
+- 👋 Hi, I’m OuliKuato
+- is a normally chinese and my english isn't very good٩(๑•̀ω•́๑)۶
+- 👀 I’m interested in Minecraft and EazyLanguageProject
+- 🌱 I’m currently learning Renpy to make Visual Novel
+- 💞️ and i wish anybody can have chat with me(●'◡'●)
+- 📫 How to reach me ?
+-Email me Admin@Oulixiaohui.fun
